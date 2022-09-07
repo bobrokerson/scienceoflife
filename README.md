@@ -22,7 +22,7 @@ Panax ginseng (G115) improves aspects of working memory performance and subjecti
 #### The effect of mint on memory
 ##### [* article #1](https://pubmed.ncbi.nlm.nih.gov/21154383/)
 ##### [* article #2](https://www.ffhdj.com/index.php/ffhd/article/view/181)
-##### [* article #3 (https://www.researchgate.net/publication/280981411_Prospective_Role_In_Treatment_Of_Major_Illnesses_And_Potential_Benefits_As_A_Safe_Insecticide_And_Natural_Food_Preservative_of_Mint_Mentha_spp_A_Review)
+##### [* article #3] (https://www.researchgate.net/publication/280981411_Prospective_Role_In_Treatment_Of_Major_Illnesses_And_Potential_Benefits_As_A_Safe_Insecticide_And_Natural_Food_Preservative_of_Mint_Mentha_spp_A_Review)
 
 3. The effects of green tea extract on working memory, in particular oolong
 ##### [* article #1](https://pubmed.ncbi.nlm.nih.gov/21154383/)
